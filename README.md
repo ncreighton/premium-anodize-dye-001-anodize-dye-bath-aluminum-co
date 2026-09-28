@@ -1,0 +1,2 @@
+# premium-anodize-dye-001-anodize-dye-bath-aluminum-co
+Tired of guessing color outcomes in your anodize and dye baths? Most crafters waste materials and time because they lack a centralized system to track bath conditions, aluminum types, and dye results.  The Anodize &amp; Dye Bath Aluminum Color Craft Lab is a Notion template purpose-built to eliminate the guesswork from your anodizing workflow. It combi
